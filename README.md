@@ -1,0 +1,2 @@
+# ech-ombor-app
+Shahzodbek
